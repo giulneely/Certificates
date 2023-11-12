@@ -1,1 +1,1 @@
-# Certifications from completed online course.
+# Certifications from completed online courses.
